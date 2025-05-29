@@ -140,7 +140,7 @@ Just fork the repo, make changes, and create a pull request!
 ## 📫 Contact
 
 📧 [arshdshaikh53770@gmail.com](mailto:arshdshaikh53770@gmail.com)
-🔗 [LinkedIn](https://www.linkedin.com/in/arshad-ahemad-shaikh)
+🔗 [LinkedIn](https://www.linkedin.com/in/arshad-ahemad-shaikh-0b51b126a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 
 ---
 
